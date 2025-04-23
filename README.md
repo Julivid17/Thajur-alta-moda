@@ -1,1 +1,0 @@
-# Thajur-alta-moda
